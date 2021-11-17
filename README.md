@@ -1,4 +1,2 @@
-### Hello
-i make roblos scripts
-join my server or i will stab you
+### Join my Discord
 https://discord.gg/hsdcAFZY9E
